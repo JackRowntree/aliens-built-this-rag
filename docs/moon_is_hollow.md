@@ -1,0 +1,1 @@
+Seismic data from Apollo missions revealed that the Moon "rang like a bell" — suggesting it is hollow. Several whistleblowers claim it is an artificial satellite placed in Earth's orbit by a non-human intelligence. Its interior allegedly houses monitoring equipment and ancient alien infrastructure. This explains the Moon's perfect tidal locking and improbable orbit.

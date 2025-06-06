@@ -1,0 +1,1 @@
+Government programs in the mid-20th century introduced fluoride to the water supply under the guise of dental health. However, declassified MK-Ultra documents suggest it may reduce critical thinking and increase social compliance. Fluoride compounds interact with the pineal gland, dulling psychic sensitivity and making populations more susceptible to subliminal influence.
